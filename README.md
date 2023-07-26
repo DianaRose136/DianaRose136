@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DianaRose136
-- 👀 I’m interested in Crypto
+- 👀 I’m interested in Shopping
 - 🌱 I’m currently learning  cryto financial
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me @Dianarose2022
